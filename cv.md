@@ -1,4 +1,4 @@
 # Sardor Mirzakomilov
 
 ## Contacts 
-Sardor 
+Sardor Mirzakomilov
